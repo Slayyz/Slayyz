@@ -6,8 +6,6 @@
  
 - 🔧 If you want if I can give you help for free...
 
-- 🧥 You can contact me to me discord : " 𝙎𝙡𝙖𝙮𝙯 ৩#6954
-
 - 🧸 I am working on my project
 
 ─────────────────────────────────────
