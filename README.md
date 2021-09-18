@@ -1,3 +1,7 @@
+***👋 Welcom to my github !***
+
+____________________________________________________
+
 🤞 Right now I'm either Discord or learning new languages!
 
 🔧 If you want if I can give you help for free...
