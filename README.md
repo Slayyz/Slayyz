@@ -1,8 +1,8 @@
-### ***👋 Welcome to my Github account !***
+### ***👋 Welcome to my Github profile !***
 
 ─────────────────────────────────────
 
-- 🤞 Right now I'm either on Discord or learning new programming languages!
+- 🤞 Right now I'm either on Discord or learning new programming languages !
  
 - 🔧 If you need it I can help you out for free...
 
@@ -10,7 +10,7 @@
 
 ─────────────────────────────────────
 
-### ***📌 Connect with me :***
+### ***📌 Connect with me: ***
 
 - 🎨 You can contact me on Discord : " 𝙎𝙡𝙖𝙮𝙯 ৩#6954
 
