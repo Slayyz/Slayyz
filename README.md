@@ -12,7 +12,7 @@
 
 ### ***📌 Connect with me: ***
 
-- 🎨 You can contact me on Discord : " 𝙎𝙡𝙖𝙮𝙯 ৩#6954
+- 🎨 You can contact me on Discord : " 𝙎𝙡𝙖𝙮𝙯 ৩#3036
 
 - 🛒 And on my website : ...
 
